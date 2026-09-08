@@ -45,5 +45,3 @@ Tenho interesse especialmente em:
 - Sistemas e tecnologia
 
 ---
-
-📍 Porto Feliz, São Paulo, Brasil
